@@ -10,4 +10,7 @@ c * h heavily ♡ w2i
 
 ![](https://files.catbox.moe/9mtwa2.webp)
 
-Creds 2 Rowan ♡
+Creds 2 Rowan 
+
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=3173iffdarvtl55j7xydqt3bmmkm)
+
