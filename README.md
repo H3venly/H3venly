@@ -17,8 +17,11 @@ w2i
 
 
 
+"If just being born is the greatest act of creation, then what are you supposed to do after that? Isn't everything that comes next sort of a disappointment- slowly entropy-ing until we deflate into a pile of mush?" 
+
+
+
+
+
 
 ![87858ddeccfcc3bff3effa0f5f4301f4](https://github.com/user-attachments/assets/4bead5c0-05b9-4796-a2c5-d62e8a39ec6e)
-
-
-"If just being born is the greatest act of creation, then what are you supposed to do after that? Isn't everything that comes next sort of a disappointment- slowly entropy-ing until we deflate into a pile of mush?" 
