@@ -1,5 +1,7 @@
 <div align="center">
 
+
+
 ![6ac3baa52878cfed165e5f2eea8a0681](https://github.com/user-attachments/assets/0ad81ef7-3917-487d-8433-b74a5059a077)
 
 
@@ -26,4 +28,5 @@ w2i
 ꉂ(˵˃ ᗜ ˂˵)
 
 
-![87858ddeccfcc3bff3effa0f5f4301f4](https://github.com/user-attachments/assets/4bead5c0-05b9-4796-a2c5-d62e8a39ec6e)
+![770789fcfc5b4e06572763e23b727f8a](https://github.com/user-attachments/assets/20f733b6-0a0c-4ed9-8da9-e62345c74817)
+
