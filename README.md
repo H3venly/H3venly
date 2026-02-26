@@ -1,9 +1,13 @@
 <div align="center">
 
 
+<img width="503" height="64" alt="Screenshot 2026-02-25 6 47 38 PM" src="https://github.com/user-attachments/assets/3833737f-e838-4337-b599-833f9cce40e0" />
 
-![6ac3baa52878cfed165e5f2eea8a0681](https://github.com/user-attachments/assets/0ad81ef7-3917-487d-8433-b74a5059a077)
+꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦
 
+![770789fcfc5b4e06572763e23b727f8a](https://github.com/user-attachments/assets/20f733b6-0a0c-4ed9-8da9-e62345c74817) 
+
+ Nagito Yumshipper, doubles dni  (╥﹏╥)
 
 
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=୨ৎ&color=eb3f73&style=plastic)
@@ -12,12 +16,11 @@ c * h heavily!!!
 
 w2i
 
-⋆˚꩜｡
 
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3173iffdarvtl55j7xydqt3bmmkm&cover_image=true&theme=spotify-embed&show_offline=true&background_color=7d9735&interchange=false&profanity=false&mode=dark&bar_color=92b14e&bar_color_cover=false)
-
+![5339c24f683ea8fc0bbb6786dc6221ff](https://github.com/user-attachments/assets/39c0a5f5-dbaa-4c9e-bc06-eed0085d9ca4)
 
 (* ´ ﹃｀*)
+
 
 
 
@@ -28,5 +31,8 @@ w2i
 ꉂ(˵˃ ᗜ ˂˵)
 
 
-![770789fcfc5b4e06572763e23b727f8a](https://github.com/user-attachments/assets/20f733b6-0a0c-4ed9-8da9-e62345c74817)
+
+ ![feb1937b5a2b0c09b43d4745531baee4](https://github.com/user-attachments/assets/00fd126e-a645-4415-8af0-715db4c714fb)   
+
+ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
