@@ -7,6 +7,8 @@
 
 ![xdbwgg](https://github.com/user-attachments/assets/f4415586-1bea-4924-a2c9-f94ccc78bd7d)
 
+GUYS PLSPLSPLSSS MATCH W ME OKII???!?!?!? (IT CAN BE ANY SHIP OR DUOOOO)
+
 <img width="99" height="56" alt="db5rcew-83bd3d4d-bf0b-4dc9-859c-f4621a537a6d" src="https://github.com/user-attachments/assets/ece40108-ff16-4741-8dda-a6e6c5702666" />    <img width="99" height="56" alt="1gjqsm" src="https://github.com/user-attachments/assets/bd90281f-8d9b-4731-a9ef-ea772b20f9b8" />    <img width="99" height="56" alt="tumblr_pbjlg5AUEY1xz2nuuo2_100" src="https://github.com/user-attachments/assets/fcaa2c38-b9a4-4269-bfc7-85a1dd88c9a0" />
 
 
