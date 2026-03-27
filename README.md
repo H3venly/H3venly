@@ -1,5 +1,7 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=h3venly4&label=🦇&=h3venly&color=blueviolet)
+
 ![068c96dc41bc8495d0ae28cf8b095ba7](https://github.com/user-attachments/assets/f306996d-2d24-4bf7-8461-5e24ba0e3a33)
 
 
@@ -36,7 +38,6 @@ w2i
 
 
 
-
 ![5a4ba8a58283fdb8cfb1fff4a723f7c7](https://github.com/user-attachments/assets/2789513c-ebef-40ef-b927-1e1fa313b481)
 
 
@@ -45,7 +46,6 @@ w2i
 
 
 
-![](https://komarev.com/ghpvc/?username=h3venly4&label=🦇&=h3venly&color=blueviolet)
 
 
 <img width="1193" height="57" alt="Untitled1431-20230807102020" src="https://github.com/user-attachments/assets/c30ba49e-58e5-4165-994d-d6ee4bf1c878" />
