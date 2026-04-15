@@ -10,7 +10,8 @@
 
 
 
-![f63](https://github.com/user-attachments/assets/d8d7f39b-62af-46ab-82c8-b1a6d91d3ad3)
+![x24](https://github.com/user-attachments/assets/ffbf4174-8725-478c-bb6b-ed87a3c73a5f)
+
 
 
 GUYS PLSPLSPLSSS MATCH W ME OKII???!?!?!? (IT CAN BE ANY SHIP OR DUOOOO)
