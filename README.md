@@ -1,12 +1,12 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=h3venly4&label=🦇&=h3venly&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=🦇&=h3venly&color=lightgrey)
 
 ![644718b36b75aa619bd6c35986dd8a05](https://github.com/user-attachments/assets/af6a6dd7-2b87-44d0-a22c-2a6b0c22ea8b)
 
 
 
-<img width="1312" height="92" alt="pct622" src="https://github.com/user-attachments/assets/2a3e4f1b-1057-4e65-a88e-b6f5b5196061" />
+<img width="1193" height="57" alt="Untitled1431-20230807102020" src="https://github.com/user-attachments/assets/c30ba49e-58e5-4165-994d-d6ee4bf1c878" />
 
 
 
@@ -50,7 +50,7 @@ c * h heavily!!!
   (* ´ ﹃｀*)
 
 
-<img width="1193" height="57" alt="Untitled1431-20230807102020" src="https://github.com/user-attachments/assets/c30ba49e-58e5-4165-994d-d6ee4bf1c878" />
+
 
 
 
