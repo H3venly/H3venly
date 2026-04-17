@@ -20,7 +20,7 @@ GUYS PLSPLSPLSSS MATCH W ME OKII???!?!?!? (IT CAN BE ANY SHIP OR DUOOOO)
 
 
 
-<img width="99" height="56" alt="dcd0451a" src="https://github.com/user-attachments/assets/684e5706-cddd-472e-ba1b-eaf37e9a7bb6" /> <img width="99" height="56" alt="tumblr_c807b750e2cd1f4522099bb12d430594_27251ef2_100" src="https://github.com/user-attachments/assets/ed4e7e3b-fbd4-46a7-97df-bc394449dfab" /> ![tumblr_pbtcf1EFvB1xzybrpo6_100](https://github.com/user-attachments/assets/1d610d0d-1f03-4459-a1da-b812e86a541b)
+<img width="128" height="128" alt="tsu2" src="https://github.com/user-attachments/assets/4ee1449f-4dad-46ba-8ecc-a57dca875da4" />
 
 
 
