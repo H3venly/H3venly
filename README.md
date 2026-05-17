@@ -2,7 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=🦇&=h3venly&color=lightgrey)
 
-![644718b36b75aa619bd6c35986dd8a05](https://github.com/user-attachments/assets/af6a6dd7-2b87-44d0-a22c-2a6b0c22ea8b)
+<img width="540" height="303" alt="5c062b6677906823b806b6e89fc11361" src="https://github.com/user-attachments/assets/922ab550-78de-4d11-8ec2-bec3be6dbac3" />
+
 
 
 
