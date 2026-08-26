@@ -7,7 +7,8 @@
 
 
 
-<img width="444" height="250" alt="_" src="https://github.com/user-attachments/assets/2c641b47-3a3d-4e9d-80f8-03c543349bb1" />
+<img width="736" height="552" alt="WEEZER REFERENCE" src="https://github.com/user-attachments/assets/c88b12da-5968-4d72-8a54-1372eedfbb23" />
+
 
 
 
