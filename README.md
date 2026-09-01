@@ -33,12 +33,6 @@ GUYS PLSPLSPLSSS MATCH W ME OKII???!?!?!? (IT CAN BE ANY SHIP OR DUOOOO)
 
 
 
-c * h heavily!!! 
-
-
- w2i most of the time
-
-
 
 
 
