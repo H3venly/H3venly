@@ -1,7 +1,7 @@
 <div align="center">
 
 
-![](https://komarev.com/ghpvc/?username=h3venly4&label=🫧&=h3venly&color=blue) 
+![](https://komarev.com/ghpvc/?username=h3venly4&label=🫧&=h3venly&color=blue)
 
 <img width="1280" height="117" alt="tumblr_5d512005d414f718a6d3690150f9be0e_da1e84e2_2048" src="https://github.com/user-attachments/assets/a6ed59cd-70b2-46b2-87fd-5ac3fdf0615e" /> 
 
