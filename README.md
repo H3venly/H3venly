@@ -9,7 +9,8 @@
 (╯°□°）╯︵ ┻━┻
 
 
-<img width="600" height="853" alt="2160dc7abc5169bb809d4f692243bd56" src="https://github.com/user-attachments/assets/24cc8917-156f-4f34-a2c9-55ff8ff64b98" />
+<img width="736" height="520" alt="75857477b5b62420858b11fbbd5b37d8" src="https://github.com/user-attachments/assets/c4d1f203-b5c3-4c21-87bd-8cde262e2b6a" />
+
 
 
 
